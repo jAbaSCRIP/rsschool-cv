@@ -2,7 +2,7 @@
 ---
 ## Contact Information
 - Email: serejarado@gmail.com 
-- Phone: +789871582218
+- Phone: +79871582218
 - Discord: JAbaSCRIPT#1986
 - Planet Earth<br> 
     Russia, Samara region, Togliatty Sity.

@@ -1,1 +1,1 @@
-# rsschool-cv
+https://jabascrip.github.io/rsschool-cv/
